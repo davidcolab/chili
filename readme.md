@@ -27,5 +27,20 @@ Pork fat from pork shoulder
 1 pasilla chile
 water
 salt to taste.
+1 onion
+
+Dice onion, sauté. Add Beans. If using add water to generously. Add 1 cup of Pork fat.
+Add bayleaf, ancho and pasilla chile. Add salt. Bring to boil. Then cover until
+beans are cooked.
+
 
 Finish
+2 cans of Diced tomatoes (or 4 fresh heirloom tomatoes if in season.).
+Cumin to taste.
+salt to taste.
+2 cans of green chiles.
+Pork
+Base
+
+Keep stock used in beans. Add all to a pot. Bring to boil.
+Taste, salt + cumin, repeat until tastes good.
